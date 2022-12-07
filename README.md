@@ -1,1 +1,0 @@
-# juliettewhite.github.io
